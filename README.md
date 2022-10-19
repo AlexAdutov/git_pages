@@ -4,5 +4,5 @@
 
 ### И меня все еще не покидает надежда стать программистом
 
-![vision](https://юцит.рф/wp-content/uploads/citaty-programmistov-na-anglijskom.jpg)
+![vision](https://corada.ru/upload/iblock/05b/programmisty_terroristy.jpg)
 
